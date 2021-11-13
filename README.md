@@ -1,4 +1,4 @@
-- 👋 Hi, Nama saya @amalnurfaizi
+- 👋 Hi, Nama saya Amal Nur Faizi
 - 👀 I’m interested in UI/UX
 - 🌱 I’m currently learning Programming
 - 📫 How to reach me fibewoyo@gmail.com
